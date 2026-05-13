@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Photoshop for macOS with updated Preset for Adobe Photoshop for macOS - 3D rendering and non-destructive editing, the #1 preset. Includes 3D rendering and
 
 
 
